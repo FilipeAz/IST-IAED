@@ -6,10 +6,12 @@
 
 [LEIC-A](https://fenix.tecnico.ulisboa.pt/cursos/leic-a)
 
-[IAED 1st try](https://fenix.tecnico.ulisboa.pt/disciplinas/IAED764511/2014-2015/2-semestre)
+[IAED 2014/2015](https://fenix.tecnico.ulisboa.pt/disciplinas/IAED764511/2014-2015/2-semestre)
 
-[IAED 2st try](https://fenix.tecnico.ulisboa.pt/disciplinas/IAED76451113/2015-2016/2-semestre)
+[IAED 2015/2016](https://fenix.tecnico.ulisboa.pt/disciplinas/IAED76451113/2015-2016/2-semestre)
 
-Projects Grade 1st try - 11.4/20
+Projects Grade 2014/2015 - 11.4/20
 
-Projects Grade 2nd try - 18/20
+Projects Grade 2015/2016 - 18/20
+
+P.S. - Even though I didn't fail the first time I knew I could get a better grade, hence the 2 years. 
